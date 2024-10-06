@@ -1,8 +1,8 @@
-# Hi there, I'm Jesse - aka codeSTACKr 👋 
-I'm a Husband, Father, Developer, and Teacher! 
+# Hello everyone, I'm Stacie. 👋 
+I have a little sister,Stella, who is very cheeky! 
 ## About Me 
-- 🏗️ I'm currently working on a VS Code Course!
-- 🧠 I'm currently learning everything 🤣
-- 👥 I'm looking to collaborate with other content creators
-- 🎮 2020 Goals: Contribute more to Open Source projects
--⚡ Fun fact: I love to draw and play guitar / drums
+- ⛷️ I'm nine and I love skiing!
+- 🧠 I'm a fan of Bluey and get most quizzes right. 🤣
+- ⚡ I'm also a fan of Harry Potter
+- 🪈 I play the flute and I do ballet
+-🖊️ Fun fact: Me and my friend are usually top of the class, but somtimes we aren't.
