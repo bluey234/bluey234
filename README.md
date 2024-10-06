@@ -1,5 +1,5 @@
 # Hello everyone, I'm Stacie. 👋 
-I have a little sister,Stella, who is very cheeky! 
+I have a little sister, Stella, who is very cheeky! 
 ## About Me 
 - ⛷️ I'm nine and I love skiing!
 - 🧠 I'm a fan of Bluey and get most quizzes right. 🤣
